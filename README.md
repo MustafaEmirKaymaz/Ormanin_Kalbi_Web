@@ -159,6 +159,8 @@ Mustafa Emir Kaymaz
 Efe Başpinar
 🧙‍♂️ Ormanın Kalbi Evreninin Düzenliyicisi
 
+Bütün haklar Mustafa Emir Kaymaza ve Efe Başpinara aittir 
+
 
 ⸻
 
